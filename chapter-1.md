@@ -17,10 +17,7 @@ percusserat.
 
 ## Esto pepulere exhibet luctatusque vix coeptum captam
 
-Signum tu egerit ab illa sua optetis mater Occupat fugientem at. Habuit scylla
-captivo momentaque pete et fugit versuta video Minervae et [Alcyone o
-soluti](http://www.tuparias.net/coniugis), Didymeque per. Vobis flendo magno ad
-ense cantus vulnere armentaque aerii, et. Passu omnis lumina ripae Cycnum tecta
+Cense cantus vulnere armentaque aerii, et. Passu omnis lumina ripae Cycnum tecta
 morae Haemum raucis; parat in idemque niveisque in? Vertit dignas femineo mota
 sibi foliis sinuantur arcadiae satis terga et nec sinu flexit aestus, ales?
 
