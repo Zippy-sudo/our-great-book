@@ -2,8 +2,6 @@
 
 ## Unde est te capi
 
-Lorem markdownum diebus et e suaque, si terras elegit. Viso nubes reddidit.
-Exactus duo *nitidam*, mecum e credere intexere dictaque, in canamus. Victa
 cernenda crimen manibusque tetenderat vetustas luridus aquilonibus illum, aetas
 **apud** teque, tota atria, speculabar.
 
